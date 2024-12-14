@@ -1,2 +1,0 @@
-https://github.com/user-attachments/assets/28bf9ab3-f6d0-44d0-8872-fc41e0bb0e10
-![Screenshot_20241214_192323_com.github.android.jpg](https://github.com/user-attachments/assets/968e8bb2-ea84-4411-873b-a4185530b160
